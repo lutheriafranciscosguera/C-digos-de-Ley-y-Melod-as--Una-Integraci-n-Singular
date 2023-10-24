@@ -1,1 +1,1 @@
-# C-digos-de-Ley-y-Melod-as--Una-Integraci-n-Singular
+"Francisco Sguera: un abogado que compila melodías. Al igual que en la programación, en la luthería y la abogacía, el detalle es clave. Dos dominios, un compromiso."
